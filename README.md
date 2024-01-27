@@ -1,3 +1,3 @@
 18 years old 
-like to cook
+Like to cook
 Loves sleeping
